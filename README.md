@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @hue-shiv
+- 👀 I’m interested in Education and AI
